@@ -1,1 +1,1 @@
-# practica2_ikbo0417
+# praktica2_ikbo0417
